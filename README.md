@@ -1,6 +1,4 @@
 # Carolina Fernanda González Zapata
-carolinagonzalezzapata@gmail.com / +1 (206) 617 1756 / Santiago, Chile - Seattle, WA, 98109
-
 
 ###PROFESSIONAL SUMMARY:####
 - 7+ years of experience in project management for several industries
